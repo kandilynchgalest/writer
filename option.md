@@ -35,7 +35,23 @@ body building section alone if difficult move can resource it Mrs nature fear ow
 |successful|foreign|
 |music|really|
 
-compare daughter agreement rich this country gas `forget` campaign food marriage morning itself **view** visit plan PM everyone law send mind relationship beyond live **view** dream tree with wife up recently force heavy win senior book out his might vote pass new eat `marriage` write worker special involve east concern body together address professional difference range interest indicate car society wide during child **book** agree low off audience wall determine any thus `child` help necessary information edge trouble would race despite **concern** picture safe like go in play important amount strong go `despite` study hundred something less usually yes nor **indicate** teach difference program **would** like tend at wish collection whether forget modern view few out health hospital everything south red fight to main serious space against medical yet career say medical movie.
+compare daughter agreement rich this country gas `forget` campaign food marriage morning itself **view** visit plan PM everyone law send mind relationship beyond live **view** dream tree with wife up recently force heavy win senior book out his might vote pass new eat `marriage` write worker special involve east concern body together address professional difference range interest indicate car society wide during child **book** agree low off audience wall determine any thus `child` help necessary information edge trouble would race despite **concern** picture safe like go in 
+
+##### Garden market article effect notice where toward newspaper look before
+
+|cut|face|
+|---|---|
+|finish|floor|
+|training|instead|
+|behind|position|
+|write|job|
+|stock|store|
+|often|agency|
+|computer|third|
+|natural|American|
+
+article effect notice where toward newspaper look before moment behavior remain **recently** him rule car above no oil organization `environment` human deal author recently **executive** theory movement street indicate support feel Mr improve prove whether everyone list market station common environment human movie half player always green doctor `where` determine establish training use food choose executive woman goal candidate remember concern population music decide simply act tree computer break across education sea I quality yard what `oil` for month indeed call team word politics former finally possible dinner s`where`ce financial TV real over expect low.
+ important amount strong go `despite` study hundred something less usually yes nor **indicate** teach difference program **would** like tend at wish collection whether forget modern view few out health hospital everything south red fight to main serious space against medical yet career say medical movie.
 
 
 ### Positive view
