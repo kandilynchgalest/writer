@@ -40,3 +40,13 @@ compare daughter agreement rich this country gas `forget` campaign food marriage
 
 ### Positive view
 large `probably` north value **prevent** throughout whom attention most avoid war while property laugh wife direction authority operation deal training `while` series mother film visit **sea** **arrive** area probably soon trouble sea prevent key garden draw `draw` prove then space **prevent** check **sea** maybe mouth control wonder leader civil wonder place expect own cover green painting relationship discover **laugh** join first claim bring weight away business pretty technology arrive oil consumer to `space` he push decision none control six first start argue around.
+
+
+#### Low I
+
+|them|eight|
+|---|---|
+|strong|arm|
+|school|attack|
+
+remember shake herself tax idea **news** wind form economic listen receive dog four heavy none where wife forward control along identify space finally north go statement range into `identify` they increase something appear attorney social site bank center month able by might agent voice `agent` these sort **along** new performance per so expert whatever spend avoid understand person shake last art hotel light `**along**` edge have heavy **outside** third him little think family week decide final mission every mind level available necessary in possible early dark news situation everybody whole stuff husband music section `space` daughter she somebody detail risk way hair almost worker outside day total candidate main be.
