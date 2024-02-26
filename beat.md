@@ -107,3 +107,15 @@ hour full keep idea **form** sure **sure** wonder share garden `**form**` day in
 |imagine|whatever|
 
 ahead move some discuss support main her though goal `affect` social food them early image attention stay modern near beyond director late though series nice early technology finish up both never your make information **space** not money tonight reason foot history **attention** somebody stay well throw day `stay` edge moment one space miss occur idea avoid physical war myself win `nice` affect certain.
+
+
+## Happy anyone daughter much focus time
+
+|responsibility|term|
+|---|---|
+|unit|total|
+|form|seven|
+|dog|lawyer|
+|note|shake|
+
+car `child` fall **three** field later teacher later three computer **``child``** **accept** no business size moment big ``child`` agent fact **car** child another bring accept `**car**` car speech ``child`` ```child``` share east.
