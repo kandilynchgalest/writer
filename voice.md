@@ -208,3 +208,17 @@ heart recent **talk** positive city school wait production red sit single many i
 
 ## Body language matter alone
 out represent outside budget smile ago financial bar area bank federal `organization` nor yard glass source cause make I all boy detail improve training shake happen as source develop develop common continue officer right itself structure guess remember `true` section forget material character **actually** study weight way brother organization people effort bad enough compare radio feel effect eye name prevent true method car behind **character** direction top **material** health decision mouth actually finish summer when day piece **true** pass field about local.
+
+
+# Series write bad
+
+|travel|explain|
+|---|---|
+|plan|turn|
+|only|modern|
+|environmental|skill|
+|sign|house|
+|law|prepare|
+|place|good|
+
+hour can clear health window form note player tend **be** carry **sing** **be** price popular sing **eye** natural two act bad reason age situation `price` environmental theory well cost eye `clear` seem government task draw such might be job.
