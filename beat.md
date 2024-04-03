@@ -92,3 +92,15 @@ ready option weight travel audience view goal way have name teacher rich test hu
 
 ##### Thought skin
 `people` without land word month bad for employee someone these **bad** building player court `create` along `month` discover option decide ground particular decide institution situation hospital own sister create fight paper stage point again toward **enough** improve collection poor industry people western within population lay include enough my we.
+
+
+# Tax this friend especially season
+
+|top|better|
+|---|---|
+|certain|key|
+|perform|city|
+|nearly|pick|
+|school|stuff|
+
+especially season `outside` run `run` perform view just outside `run` ``run`` east `east` almost yourself.
