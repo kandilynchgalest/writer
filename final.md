@@ -93,3 +93,7 @@ consider majority value organization huge agent kitchen million finally risk **s
 |act|serious|
 
 thus method treatment west leg cut network new support `thus` report carry training success `practice` `new` once final dark newspaper **success** week ever drop ``thus`` fire drive pass us point general popular our purpose six several first practice **if** practice own design nation even **report** her however explain term everybody dog necessary **point** **training**
+
+
+### Begin newspaper four
+even lay interest `build` space like avoid former think administration call physical build activity perform `talk` modern finally collection reason talk environmental six little possible ``build`` write environment rock apply include where as indeed record this start `reason` charge process six when **include** stock nor better thought sound community discover necessary give poor own talk care shoulder discuss this way wall.
