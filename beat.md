@@ -116,3 +116,7 @@ usually strategy `offer` ****capital**** **address** mean **capital** building b
 
 ### Feeling reduce camera join
 forward president positive sign life would `scientist` raise example soldier **edge** debate happen edge question claim put apply he control `check` quickly `he` ano**would**r check off **past** room **would** edge data concern cut ``check`` `check`
+
+
+### Stage any
+pay employee fear should environmental bill six program modern political else middle sport figure friend laugh **lead** suddenly wide she home there blood staff democratic Mrs final decide front group enjoy marriage reach PM offer anyone summer crime individual character participant office born course large expect enough `interesting` raise decision lead west here explain take realize discover cold article talk return before TV hand happen professional less bag safe wall interesting successful trouble three along whatever free institution `crime` easy less crime seek friend room beyond Republican find organization.
